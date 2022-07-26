@@ -1,3 +1,8 @@
+
+![qqeoIiq](https://user-images.githubusercontent.com/110060787/181098607-55b27451-fd2b-41c9-9f18-786ceb6f5ce1.jpeg)
+
+
+
 Join us to find out more : https://t.me/+qcwn4AjCZyxkNmFk
 
 Software is multithreaded.. You can run as much accounts as your computer can support at once! And you can run different functions for different devices!
